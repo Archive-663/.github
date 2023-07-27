@@ -1,6 +1,6 @@
 ## Welcome to Archive 663
 
-Archive 663 is a collection of photography tools I've come across in my dreams. I've read that the only thing we really own are our dreams. I have too many and it's starting to make it hard to think. Maybe if I catalog them here and share them I can finally clear my head. 
+Archive 663 is a collection of photography tools I've come across in my dreams. 
 
 ### Help support Archive 663 with a dontation or monthly sub
 
