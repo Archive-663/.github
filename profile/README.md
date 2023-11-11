@@ -1,6 +1,6 @@
 ## Welcome to Archive 663
 
-Archive 663 is a collection of sketches I've made somewhere in time. My goal is to collect as many as I can before I consciously uncouple from life.  
+Archive 663 is a collection of design sketches I've made somewhere in time. My goal is to collect as many as I can before I consciously uncouple from life.  
 
 ### Help support Archive 663 with a dontation or monthly sub
 
