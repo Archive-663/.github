@@ -1,6 +1,11 @@
 ## Welcome to Archive 663
 
-Archive 663 is a collection of design sketches I've made somewhere in time. My intent is to collect as many as I can here and share them with as many people as possible before I consciously uncouple.  
+Archive 663 is a collection of design sketches I've made somewhere in time. My intent is to collect as many as I can here and share them with as many people as possible before I consciously uncouple. 
+
+### Links
+
+- <a href='https://www.youtube.com/@georgemoua' target='_blank'>Youtube</a>
+- <a href='https://www.instagram.com/geo.moua/' target='_blank'>Instagram</a>
 
 ### Help support Archive 663 with a dontation or monthly sub
 
