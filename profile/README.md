@@ -6,6 +6,7 @@ Archive 663 is a collection of 3D printable design sketches I've made somewhere 
 
 - <a href='https://www.youtube.com/@georgemoua' target='_blank'>Youtube</a>
 - <a href='https://www.instagram.com/geo.moua/' target='_blank'>Instagram</a>
+- <a href='https://ko-fi.com/P5P3MHMSF' target='_blank'>Kofi</a>
 
 ### Help support Archive 663 with a dontation or monthly sub
 
