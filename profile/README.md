@@ -1,6 +1,6 @@
 ## Welcome to Archive 663
 
-Archive 663 is a collection of design sketches I've made somewhere in time. My intent is to collect as many as I can here and share them with as many people as possible before I consciously uncouple. 
+Archive 663 is a collection of 3D printable design sketches I've made somewhere in time. My intent is to collect as many as I can here and share them with as many people as possible before I consciously uncouple. 
 
 ### Links
 
