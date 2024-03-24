@@ -4,6 +4,8 @@ Archive 663 is a collection of 3D printable design sketches I've made somewhere 
 
 "the cemetery is full of good ideas."
 
+"you rocks think you're so smart."
+
 ### Links
 
 - <a href='https://www.youtube.com/@georgemoua' target='_blank'>Youtube</a>
