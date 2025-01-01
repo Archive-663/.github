@@ -2,7 +2,9 @@
 
 Archive 663 is a collection of 3D printable design sketches I've made somewhere in time. My intent is to collect as many as I can here and share them with as many people as possible before I consciously uncouple. 
 
-"you rocks think you're so smart."
+"You rocks think you're so smart."
+"That's alright. I'm exactly where I'm supposed to be."
+"When in rains, the world pays attention -- be the rain."
 
 ### Links
 
