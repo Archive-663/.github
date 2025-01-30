@@ -4,7 +4,8 @@ Archive 663 is a collection of 3D printable design sketches I've made somewhere 
 
 "You rocks think you're so smart."<br />
 "That's alright. I'm exactly where I'm supposed to be."<br />
-"When in rains, the world pays attention -- be the rain."
+"When in rains, the world pays attention -- be the rain."<br />
+"Santana did what with Rob Thomas?!"
 
 ### Links
 
